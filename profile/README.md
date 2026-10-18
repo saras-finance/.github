@@ -1,9 +1,16 @@
-## Globetrotter Finance 👋
+## Saras Finance
 
-🌈 We are a subsidiary of The Rita Software Services. We are crating products that are all about finances. Few exciting initiatives that we have are below:
+सरस [să-rus]  polymorphic
 
-1. Identity Fraud Prevention
-2. Anti Money Laundering
-3. Stocks Analysis
+etymological · **saraswati**
+goddess of knowledge, intelligence and context.
 
-🙋‍♀️ As we are growing, we are looking for talents to contribute to our work. Send your resume. hra.india@globetrotter.finance
+adjective
+fluid, elegant, embodying excellence, a continuous, effortless flow.
+
+noun
+wisdom to know truth from illusion, to orchestrate regulated enterprise workflows with finesse.
+
+
+
+To know more - visit : [https://www.sarasfinance.com](https://www.sarasfinance.com)
